@@ -1,2 +1,2 @@
 # WOLF-XD
-Let's try again___-/
+KIDZ-FUCKED
